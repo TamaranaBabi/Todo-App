@@ -1,1 +1,1 @@
-Project details and team members details
+Project Descreption and team members details
